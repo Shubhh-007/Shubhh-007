@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Shubh Gupta
-**A passionate Frontend Developer || Dta Science || BTech CSE Student**
+**A passionate Frontend Developer || Data Science || BTech CSE Student**
 
 Email Me 👉 ✉️ **shubhgupta1707** For Collaboration/Project or Anything Else. 😊😊
 
