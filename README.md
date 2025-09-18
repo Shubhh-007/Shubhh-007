@@ -9,6 +9,9 @@ Email Me 👉 ✉️ **shubhgupta1707** For Collaboration/Project or Anything El
 - 📫 **How to reach me:** shubhgupta1707@gmail.com
 - 😄 **Pronouns:** he/him
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
+
+  ## 🔗 I am a Developer and a Creator. 😊😊
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/shubhgupta_17) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/shubh-gupta) 
 
